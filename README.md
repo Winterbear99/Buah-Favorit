@@ -6,3 +6,8 @@ Macam-macam buat favoritku :
 - jeruk : manis dan asam, cocok untuk dimakan langsung atau dibuat jus. 
 - apel : manis dan banyak asam, cocok untuk dimakan langsungm. tetapi beberapa orang suka membuatnmembuatnya menjadi jus. 
 - jambu : manis, cocok untuk dibuat jus. 
+
+
+
+- Manggis
+- Manggis mempunyai nama latin Garcinia mangostana. sejenis pohon hijau abadi dari daerah tropika yang diyakini berasal dari Semenanjung Malaya dan menyebar ke Kepulauan Nusantara. Tumbuh hingga mencapai 7 sampai 25 meter. 
